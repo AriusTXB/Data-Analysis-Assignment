@@ -4,3 +4,5 @@ Despite this setback, I did my best to capture what I believe is the essence of 
 I hope you enjoy the analysis. 
 I truly appreciate your course's teaching and would love to receive some ideas on how I can improve this assignment further.
 Best regards,
+
+Assignment's report: https://satin-fig-b66.notion.site/AIT2003_1_2024-Submission-073f601271a447f8bf0992c645866a1c
